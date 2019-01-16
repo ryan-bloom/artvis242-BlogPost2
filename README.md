@@ -3,6 +3,7 @@
 
 ### Art Piece 1
 ![Carla Gannis](images/portraits_in_landscape_gannis.JPG?raw=true "Carla Gannis")
+![Carla Gannis](images/portraits_in_landscape_gannis_time_square.JPG?raw=true "Carla Gannis")
 
 This piece is very similar to the new media art piece that I analyzed in my first blog post.  Carla Gannis created this piece as well, and you can see her bold colors and style in this piece as well as in the first piece that I anlayzed.  Additionally, her "Portraits in Landscape", Gannis creates and builds the image of a woman using emojis and other smaller symbols, similarly to how she created her "Garden of Emoji Delights".  One thing that drew me to this piece is the depiction of a woman apparently holding and looking at a phone.  This relates to the younger generation's obsession with and reliance on technology.  Furthermore, this piece was displayed in August 2018 throughout Time Square in New York.  The imagery was shown on screens throughout the area.  Therefore, the woman in Gannis's work appears to be interacting with and either filming or taking photos of the locals and tourists, many of whom are creating a mirror image, taking pictures right back of the screens and Gannis's work.        
 
